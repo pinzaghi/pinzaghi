@@ -1,1 +1,1 @@
-- 📫 How to reach me pinzaghi.github.io
+📫 How to reach me: pinzaghi.github.io
